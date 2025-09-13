@@ -40,4 +40,4 @@ For inquiries, please feel free to reach out to us through our website, email, o
 
 Learn Without Limits with Stark Academy - where your career growth and development become our shared mission.
 
-© 2024 Stark Academy. All rights reserved.
+© 2025 Stark Academy. All rights reserved.
